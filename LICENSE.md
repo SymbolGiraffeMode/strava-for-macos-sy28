@@ -1,4 +1,4 @@
-
+Strava for macOS secure Addon: water-intake-tracking & community-challenges offers the most advanced Strava for macOS addon, with water-intake-tracking and community-challenges.
 
 
 
